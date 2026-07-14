@@ -11,7 +11,7 @@ Alongside teaching undergraduate pharmacy students and mentoring research projec
 * 🌍  I'm based in Cairo, Egypt
 * 🖥️  See my portfolio at [linkedin](http://www.linkedin.com/in/nesreen-mohamed-hassan-3661a42a6)
 * ✉️  You can contact me at [Nesreen.hassan@miuegypt.edu.eg](mailto:Nesreen.hassan@miuegypt.edu.eg)
-* 🚀  I'm currently working on [Evidence-based nutrition education, health & wellness content creation, and academic teaching in pharmaceutical sciences.]
+* 🚀  I'm currently working on Evidence-based nutrition education, health & wellness content creation, and academic teaching in pharmaceutical sciences.
 * 🧠  I'm currently learning Advanced nutrition coaching, digital health content creation, and lifestyle medicine.
 * 👥  I'm looking to collaborate on Health education, nutrition and wellness projects, pharmaceutical research, academic collaborations, and science communication.
 * 💬  Ask me about I love turning complex medical and pharmaceutical concepts into simple, practical advice that helps people live healthier lives.
